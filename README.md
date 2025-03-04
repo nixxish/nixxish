@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nixxish
-- 📫 How to reach me @helen_yzu on insta!!
+- 📫 How to reach me: @helen_yzu on insta!!
 - 😄 Pronouns: rice/farmer
 - ⚡ Fun fact: ...
 
